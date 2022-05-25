@@ -1,0 +1,2 @@
+# Ejercicio-practico-5S
+EJERCICIO PRACTICO CLASE SINCRINICA 5
